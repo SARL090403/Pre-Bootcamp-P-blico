@@ -1,2 +1,2 @@
-# Pre-Bootcamp-P-blico
+# Pre-Bootcamp-Publico
 ¡¡Hola Mundo!!
